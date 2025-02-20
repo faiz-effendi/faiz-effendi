@@ -1,5 +1,5 @@
 # 💫 About Me:
-An Undergraduate Student in UPN "Veteran" Yogyakarta currently following Bangkit Academy Batch 2 - Machine Learning. <br>Loves many things like Movie, Anime, Manga, and others.<br>Hope you all love this page✨
+An Undergraduate Student in UPN "Veteran" Yogyakarta Bangkit Academy Batch 2 - Machine Learning graduated. <br>Hope you all love this page✨
 
 
 ## 🌐 Socials:
